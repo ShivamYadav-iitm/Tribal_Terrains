@@ -1,0 +1,2 @@
+# Tribal_Terrains
+TEAM A STAR'S PROJECT FOR SIH 2025 .
